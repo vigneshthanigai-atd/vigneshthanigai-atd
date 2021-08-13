@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @vigneshthanigai-atd
+- 👋 Hi, I’m @vikki-atd
 - 🌱 I’m currently learning, well anything intriguing!!!
 
 <!---
